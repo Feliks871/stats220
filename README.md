@@ -6,8 +6,8 @@ A little about me:
  ·I am taking STATS 220 because :I'm major in Statistics. I like statistics and I want to learn more knowledge about statistics.
  ·I am interested in learning about programming language R, how to use programming language R and how to solve problems with R language.
 
-A meme that captures how I currently feel about my university studies is：[
-](https://static.au.edusercontent.com/files/c4vWc6qzJJewMkhZA6DqV4Pu)
+A meme that captures how I currently feel about my university studies is: 
+(https://static.au.edusercontent.com/files/c4vWc6qzJJewMkhZA6DqV4Pu)
 
 My Favorite Things:
 1.Playing badminton

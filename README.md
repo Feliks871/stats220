@@ -8,7 +8,7 @@ A little about me:
 
 A meme that captures how I currently feel about my university studies is: 
 (https://static.au.edusercontent.com/files/c4vWc6qzJJewMkhZA6DqV4Pu)
-
+![image](https://github.com/user-attachments/assets/06bf7514-495c-4a70-9546-48a620ae66f2)
 My Favorite Things:
 1.Playing badminton
      My favorite mode is: Men's Singles.

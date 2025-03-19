@@ -7,7 +7,8 @@ A little about me:
  ·I am interested in learning about programming language R, how to use programming language R and how to solve problems with R language.
 
 A meme that captures how I currently feel about my university studies is：[
-](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.aigei.com%2Flib%2Fgif%2Fmao%2F&psig=AOvVaw0J4WJZi0FZtF9uwN81KhJs&ust=1742450511787000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCOClo4C9lYwDFQAAAAAdAAAAABAW)
+](https://static.au.edusercontent.com/files/c4vWc6qzJJewMkhZA6DqV4Pu)
+
 My Favorite Things:
 1.Playing badminton
      My favorite mode is: Men's Singles.
